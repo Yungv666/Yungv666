@@ -1,1 +1,1 @@
-Deberían llamarme Noé ∞
+Deberían llamarme Noé 
